@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Memecoins  
 - 📫 How to reach me X@Busk_Algo
 - 😄 Pronouns: Busk/Busky/Busker    
-- ⚡ Fun fact: Im A Bunny.
+- ⚡ Fun fact: Im A Bunny, Also A Mask. Busk.
 
 <!---
 BuskAlgo/BuskAlgo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
